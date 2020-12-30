@@ -1,0 +1,1 @@
+This recipe teaches you how to make a Vanilla Cupcake.
